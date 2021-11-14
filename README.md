@@ -1,0 +1,2 @@
+# guide
+https://fansubs.co
